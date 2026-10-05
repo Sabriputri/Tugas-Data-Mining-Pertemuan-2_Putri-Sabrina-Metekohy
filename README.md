@@ -1,0 +1,1 @@
+# Tugas-Data-Mining-Pertemuan-2_Putri-Sabrina-Metekohy
